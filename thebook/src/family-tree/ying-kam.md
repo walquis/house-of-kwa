@@ -2,7 +2,11 @@
 32 children (24 of them numbered - 12 sons and 12 daughters)
 
 ![](./images/10th-uncle-francis-and-helena.jpg)
-10th-uncle-francis-and-helena
+11th-uncle-and-helena
+
+Grace remembers 11th uncle as having been a heart surgeon.
+
+Helena is 3rd child of 2nd Aunty, who married No.1 Lee uncle; they had Esther, George, Helena, and Alfred.
 
 ![](./images/11th-auntie-mary-and-tony.jpg)
 11th-auntie-mary-and-tony
